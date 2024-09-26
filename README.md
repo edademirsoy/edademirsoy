@@ -26,7 +26,7 @@ I'm a **Data Analyst** with a passion for uncovering insights through data. With
 
 ### 📫 How to reach me:
 - LinkedIn: [linkedin.com/in/eda-demirsoy-25b461258](https://www.linkedin.com/in/eda-demirsoy-25b461258/)
-- Email: [edademirsoy@hotmail.com](mailto:edademirsoy88@gmail.com)
+- Email: [edademirsoy88@gmail.com](mailto:edademirsoy88@gmail.com)
 
 ---
 
